@@ -10,4 +10,4 @@
 
 这里我们为您提供了全网最受欢迎的午夜福利资源，涵盖各种类型的视频，包括秋霞系列和国产午夜福利等。所有资源都可以轻松访问，无需任何复杂的操作，让您随时随地畅享优质内容。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/hay20250709/hay9 ）</span>
